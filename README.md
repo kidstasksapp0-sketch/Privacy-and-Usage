@@ -1,1 +1,1 @@
-# hosoun-privacy-policy
+# Privacy & Usage
